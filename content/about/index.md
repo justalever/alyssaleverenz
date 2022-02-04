@@ -1,5 +1,4 @@
 ---
-title: "About"
+title: About
 ---
-
-Add some copy here
+**I’m Alyssa Leverenz, a ghostwriter specializing in online content for the internet. Written works I create belong 100% to the employer who hires me– all rights reserved. Businesses from all different industries hire me to optimize landing page copy, blog posts, e-newsletters and e-books by writing engaging and relevant content that generates online traffic and helps convert online users into paying customers. My job is to carefully use words to influence purchasing decisions. I research and craft communications with valuable information to inform and inspire online readers. I have a Master of Arts degree in Strategic Communication, a Bachelor of Arts degree in Public Relations, and nearly a decade of freelance ghostwriting experience. My mission is to partner with businesses in need of my creative ghostwriting services.**
