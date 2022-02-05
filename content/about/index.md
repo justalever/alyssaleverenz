@@ -1,0 +1,4 @@
+---
+title: About
+---
+I’m a freelance ghostwriter specializing in online content for tech companies. I write landing page copy, blog posts, e-newsletters and e-books with all rights reserved to the employer who hires me. I research and carefully tend to the details, providing engaging, relevant content for online readers. My expertise includes adhering to branding guidelines and optimizing copy for search engines. I have a Master of Arts degree in Strategic Communication, Bachelor of Arts degree in Public Relations and decade of professional experience helping ambitious teams be successful. I look forward to partnering with those in need of my creative services.
