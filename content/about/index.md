@@ -3,7 +3,7 @@ title: About
 ---
 ### Health & Wellness Online Content Writer Available For Hire
 
-I'm an online content writer for health and wellness industries. I write website copy, blog posts, e-newsletters, and e-books. My background includes a Master of Arts degree in Strategic Communication, a Bachelor of Arts degree in Public Relations and a decade of freelance digital marketing experience. Throughout my career, I've pursued an interest in natural living and holistic healing, which has led me to writing content about herbalism, naturopathic medicine, acupuncture, massage therapy, reflexology, yoga, meditation and a range of environmental issues. I enjoy fully immersing myself into each new project and look forward to upcoming opportunities to collaborate with businesses interested in making a healthy impact on the world.
+I'm an online content writer for health and wellness industries. I write website copy, blog posts, e-newsletters and e-books. My background includes a Master of Arts degree in Strategic Communication, a Bachelor of Arts degree in Public Relations and a decade of freelance digital marketing experience. Throughout my career, I've pursued an interest in natural living and holistic healing, which has led me to writing content about herbalism, naturopathic medicine, acupuncture, massage therapy, reflexology, yoga, meditation and a range of environmental issues. I enjoy fully immersing myself into each new project and look forward to upcoming opportunities to collaborate with businesses interested in making a healthy impact on the world.
 
 #### Services
 
