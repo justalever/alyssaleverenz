@@ -1,0 +1,4 @@
+---
+title: sdsd
+---
+I’m a freelance content writer for tech companies. I specialize in writing online content– landing page copy, blog posts, e-newsletters and e-books– carefully tending to the details to provide engaging, helpful information for online readers. My expertise includes adhering to branding guidelines and optimizing copy for search engines. I have a Master of Arts degree in Strategic Communication, Bachelor of Arts degree in Public Relations and decade of professional experience collaborating with ambitious teams around the world. I look forward to new opportunities to collaborate with those in need of my creative services.
