@@ -18,7 +18,7 @@ I'm Alyssa Leverenz, a freelance content writer specializing in writing online c
 * Tech Companies
 * Online Courses
 * Nonprofit Organizations
-* Renewable Energy
+* Renewable Energy Corporations 
 * Medical Practitioners
 * Doctors
 * Dentists
