@@ -18,13 +18,15 @@ I'm a freelance content writer specializing in writing online content for health
 * Health & Wellness Tech Companies
 * Health & Wellness Courses
 * Medical Practitioners
-* Doctors / Dentists
+* Doctors
+* Dentists
+* Chiropractors 
+* Massage Therapists
+* Personal Trainers
 * Nutritionists
 * Mental Health Counselors
-* Personal Trainers
 * Meditation Teachers
 * Life Coaches
-* Massage Therapists
 * Grief Support Groups
 * Rehab Facilities
 * Cannabis Dispensaries
