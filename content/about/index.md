@@ -3,7 +3,7 @@ title: About
 ---
 ### Freelance Online Content Writer Available For Hire
 
-I'm an online content writer for health and wellness industries. I write website copy, blog posts, e-newsletters and e-books. My background includes a Master of Arts degree in Strategic Communication, Bachelor of Arts degree in Public Relations and decade of digital marketing experience. My interest in natural living and holistic healing has led me to writing content about a variety of health and environmental issues. I enjoy fully immersing myself into each new project and look forward to upcoming opportunities to collaborate with businesses making a healthy impact on the world.
+I'm an online content writer for tech companies interested in sharing their unique story with prospective customers. I write website copy, blog posts, e-newsletters and e-books to market digital electronics, software and internet-related services like e-commerce stores. My background includes a Master of Arts degree in Strategic Communication, Bachelor of Arts degree in Public Relations and over a decade of experience with digital marketing, brand strategy and search engine optimization (SEO). I enjoy fully immersing myself into each new project and look forward to upcoming opportunities!
 
 #### Services
 
@@ -13,26 +13,3 @@ I'm an online content writer for health and wellness industries. I write website
 * E-Newsletters
 * E-Books
 * Social Media Content
-
-#### Clients
-
-* Tech Companies
-* Online Courses
-* Nonprofit Organizations
-* Renewable Energy Corporations
-* Medical Practitioners
-* Doctors
-* Dentists
-* Chiropractors
-* Massage Therapists
-* Personal Trainers
-* Nutritionists
-* Mental Health Counselors
-* Meditation Teachers
-* Life Coaches
-* Parenting Blogs
-* Grief Support Groups
-* Rehab Facilities
-* Cannabis Dispensaries
-* Supplement Manufacturers
-* Human Rights Activists
