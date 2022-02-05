@@ -32,3 +32,4 @@ I'm a freelance content writer specializing in writing online content for health
 * Cannabis Dispensaries
 * Supplement Manufacturers 
 * Human Rights Activists
+* Nonprofit Organizations
