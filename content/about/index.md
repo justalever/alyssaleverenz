@@ -13,6 +13,7 @@ I'm a freelance content writer specializing in writing online content for health
 * E-Newsletters
 * E-Books
 * Social Media Content
+* Search Engine Optimization (SEO)
 
 #### Clients
 
