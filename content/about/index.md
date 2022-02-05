@@ -3,7 +3,7 @@ title: About
 ---
 ### Health & Wellness Online Content Writer Available For Hire
 
-I'm a freelance content writer specializing in writing online content for health and wellness industries. I write website copy, blog posts, e-newsletters and e-books with all rights reserved to the employer who hires me. My education includes a Master of Arts degree in Strategic Communication and Bachelor of Arts degree in Public Relations. I have 10+ years of experience as a digital marketer, Search Engine Optimization (SEO) specialist, blog manager and website copywriter. Clients include tech companies, medical practitioners, dentists, nutritionists, mental health counselors, personal trainers, meditation teachers, life coaches, massage therapists, Cannabis dispensaries and more. I look forward to new opportunities to collaborate with businesses interested in making a healthy impact on the world!
+I'm a freelance content writer specializing in writing online content for health and wellness industries. I write website copy, blog posts, e-newsletters and e-books with all rights reserved to the employer who hires me. My background includes a Master of Arts degree in Strategic Communication, Bachelor of Arts degree in Public Relations and 10 years of digital marketing experience. I enjoy fully immersing myself into each project and look forward to upcoming opportunities to collaborate with businesses interested in making a healthy impact on the world.
 
 #### Services
 
@@ -16,12 +16,17 @@ I'm a freelance content writer specializing in writing online content for health
 #### Clients
 
 * Health & Wellness Tech Companies
+* Health & Wellness Courses
 * Medical Practitioners
-* Dentists
+* Doctors / Dentists
 * Nutritionists
 * Mental Health Counselors
 * Personal Trainers
 * Meditation Teachers
 * Life Coaches
 * Massage Therapists
+* Grief Support Groups
+* Rehab Facilities
 * Cannabis Dispensaries
+* Supplement Manufacturers 
+* Human Rights Activists
