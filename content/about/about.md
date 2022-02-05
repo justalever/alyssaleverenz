@@ -22,4 +22,5 @@ I am a freelance online content writer, specializing in writing online health an
 * Personal Trainers
 * Massage Therapists
 * Cannabis Dispensaries
-* more
+
+  + more
