@@ -16,7 +16,8 @@ I'm a freelance content writer specializing in writing online content for health
 #### Clients
 
 * Health & Wellness Tech Companies
-* Health & Wellness Courses
+* Health & Wellness Online Courses
+* Health & Wellness Nonprofit Organizations
 * Medical Practitioners
 * Doctors
 * Dentists
@@ -32,4 +33,3 @@ I'm a freelance content writer specializing in writing online content for health
 * Cannabis Dispensaries
 * Supplement Manufacturers 
 * Human Rights Activists
-* Nonprofit Organizations
