@@ -3,7 +3,7 @@ title: About
 ---
 ### Health & Wellness Online Content Writer Available For Hire
 
-I'm a freelance content writer specializing in writing online content for health and wellness industries. I write website copy, blog posts, e-newsletters and e-books with all rights reserved to the employer who hires me. My background includes a Master of Arts degree in Strategic Communication, Bachelor of Arts degree in Public Relations and 10 years of digital marketing experience. I enjoy fully immersing myself into each project and look forward to upcoming opportunities to collaborate with businesses interested in making a healthy impact on the world.
+I'm Alyssa Leverenz, a freelance content writer specializing in writing online content for health and wellness industries. I write website copy, blog posts, e-newsletters and e-books with all rights reserved to the employer who hires me. My background includes a Master of Arts degree in Strategic Communication, Bachelor of Arts degree in Public Relations and 10 years of digital marketing experience. While beginning my writing career working with diverse entrepreneurial startups, I began pursuing an interest in natural living and holistic healing, which has led me to writing content about herbalism, naturopathic medicine, acupuncture, massage therapy, reflexology, yoga, cancer, heart disease, natural pet care, maladaptive behaviors, Reiki, meditation, bone health, Traditional Chinese Medicine, Ayurveda and a range of environmental issues. I enjoy fully immersing myself into each new project and look forward to upcoming opportunities to collaborate with businesses interested in making a healthy impact on the world.
 
 #### Services
 
@@ -18,6 +18,7 @@ I'm a freelance content writer specializing in writing online content for health
 * Tech Companies
 * Online Courses
 * Nonprofit Organizations
+* Renewable Energy
 * Medical Practitioners
 * Doctors
 * Dentists
