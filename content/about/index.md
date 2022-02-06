@@ -13,8 +13,6 @@ I’m a freelance marketer specializing in writing online content for tech compa
 * Product Descriptions
 * E-Newsletters
 * E-Books
-* White Papers
 * Case Studies
-* Research Reports
 * Video Scripts
 * Social Media Content
