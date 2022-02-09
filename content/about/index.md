@@ -22,11 +22,9 @@ Working together is typically an intimate collaboration. I am prepared to naviga
 * Technical Manuals
 * Blog Writing
 * Website Copywriting
-* Sales / Landing Page Copywriting
 * Product Descriptions
 * E-Newsletters
 * E-Books
-* Case Studies
 * Video Scripts
 * Social Media Content
 
