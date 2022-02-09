@@ -9,7 +9,9 @@ Oftentimes, those who lead the most amazing lives packed with awe-inspiring insi
 
 That's where I come in– I’m a ghostwriter, and there is no assignment that I can't adapt to. 
 
-My duty is to empower those who have something important to say. I bring the power to create literature, and my purpose is to partner with those who have a chronicle to tell. Through a series of extensive interviews, I gather a thorough outline including organized talking points, overall takeaways, the tone of voice to strive for and other unique criteria to keep in mind while crafting written works. Working together is a collaboration to successfully usher ideas to fruition for readers to relish in a timeless, handheld manner.
+My duty is to empower those who have something important to say. I bring the power to create literature, and my purpose is to partner with those who have a chronicle to tell. I consider myself a prolific writer with versatile writing abilities and exception listening skills who pays careful attention to detail. Through a series of extensive interviews, I gather a thorough outline including organized talking points, overall takeaways, the tone of voice to strive for and other unique criteria to keep in mind while crafting written works. 
+
+Working together is typically an intimate collaboration. I can take lead as much or little as necessary and am prepared to navigate the creative process from start to finish to successfully usher ideas to fruition for readers to ultimately relish in a timeless, handheld manner.
 
 ### **Ghostwriting Services**
 
@@ -28,4 +30,4 @@ My duty is to empower those who have something important to say. I bring the pow
 * Video Scripts
 * Social Media Content
 
-My background includes a Master of Arts degree in Strategic Communication, a Bachelor of Arts degree in Public Relations and over a decade of freelance writing experience. I’ve ghostwritten e-books, technical manuals and online content, mostly for tech companies, and I also have experience ghostwriting speeches up to 20 minutes in length and scriptwriting for video ads. Most recently, I've experimented with novels, memoirs and nonfiction books. I consider myself a prolific writer with versatile writing abilities. Each writing project is a new challenge that I enjoy fully immersing myself into, and I look forward to upcoming writing opportunities.
+My background includes a Master of Arts degree in Strategic Communication, a Bachelor of Arts degree in Public Relations and over a decade of freelance writing experience. I’ve ghostwritten e-books, technical manuals and online content, mostly for tech companies in agriculture and renewable energy industries. I also have experience ghostwriting speeches up to 20 minutes in length and scriptwriting for video ads. Most recently, I've ghostwritten a 50,000-word romance novel. Each writing project is a new challenge that I enjoy fully immersing myself into, and I look forward to upcoming writing opportunities.
