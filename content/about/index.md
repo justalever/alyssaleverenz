@@ -28,7 +28,7 @@ My duty is to empower those who have something important to say. I bring the pow
 * Video Scripts
 * Social Media Content
 
-## A Bit About The Ghostwriter
+## The Ghostwriter
 
 My background includes a Master of Arts degree in Strategic Communication, a Bachelor of Arts degree in Public Relations and over a decade of freelance writing experience. I’ve ghostwritten e-books, technical manuals and online content, mostly for tech companies, and I also have experience ghostwriting speeches up to 20 minutes in length and scriptwriting for video ads. Most recently, I've experimented with novels, memoirs and nonfiction books. I consider myself a prolific writer with versatile writing abilities. Each writing project is a new challenge that I enjoy fully immersing myself into, and I look forward to upcoming writing opportunities. My name is irrelevant because all credit and rights are reserved to the client who hires me, but it's Alyssa, for those wondering.
 
