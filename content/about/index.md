@@ -11,7 +11,7 @@ That's where I come in– I’m a ghostwriter, and there is no assignment that I
 
 My duty is to empower those who have something important to say. I bring the power to create literature, and my purpose is to partner with those who have a chronicle to tell. I consider myself a prolific writer with versatile writing abilities and exception listening skills who pays careful attention to detail. Through a series of extensive interviews, I gather a thorough outline including organized talking points, overall takeaways, the tone of voice to strive for and other unique criteria to keep in mind while crafting written works. 
 
-Working together is typically an intimate collaboration. I can take lead as much or little as necessary and am prepared to navigate the creative process from start to finish to successfully usher ideas to fruition for readers to ultimately relish in a timeless, handheld manner.
+Working together is typically an intimate collaboration. I am prepared to navigate the creative process from start to finish to successfully usher ideas to fruition for readers to ultimately relish in a timeless, handheld manner.
 
 ### **Ghostwriting Services**
 
