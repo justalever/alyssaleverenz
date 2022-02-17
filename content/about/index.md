@@ -32,12 +32,14 @@ Working together is typically an intimate collaboration. I am prepared to naviga
 * Video Scripts
 * Social Media Content
 
+### **About The Ghostwriter**
+
 My background includes a Master of Arts degree in Strategic Communication, a Bachelor of Arts degree in Public Relations and over a decade of freelance writing experience. I’ve ghostwritten e-books, technical manuals and lots of online content. I am well-versed in branding, digital marketing and search engine optimization (SEO) best practices. I also have experience ghostwriting speeches up to 20 minutes in length and scriptwriting for video ads. Most recently, I've ghostwritten a 50,000-word romance novel. Each writing project is a new challenge that I enjoy fully immersing myself into, and I look forward to upcoming writing opportunities.
 
 ### Ghostwriting Rates
 
 | Content Type | Typical Word Count | Typical Cost        |
 | ------------ | ------------------ | ------------------- |
-| Blog Post    | 500-2,000          | $0.10-0.25 per word |
-| White Paper  | 5,000-20,000       | $0.10-0.25 per word |
-| Book         | 20,000-60,000      | $0.25-2.00 per word |
+| Blog Post    | 500-2,000          | $0.05-0.35 per word |
+| White Paper  | 5,000-20,000       | $0.07-0.25 per word |
+| Book         | 20,000-60,000+     | $0.25-1.00 per word |
