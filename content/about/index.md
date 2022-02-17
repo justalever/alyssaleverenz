@@ -38,6 +38,6 @@ My background includes a Master of Arts degree in Strategic Communication, a Bac
 
 | Content Type | Typical Word Count | Typical Cost        |
 | ------------ | ------------------ | ------------------- |
-| Blog Post    | 500-2,000          | $0.05-0.20 per word |
-| White Paper  | 5,000-20,000       | $0.05-0.20 per word |
-| Book         | 50,000-100,000     | $0.50-4.00 per word |
+| Blog Post    | 500-2,000          | $0.10-0.25 per word |
+| White Paper  | 5,000-20,000       | $0.10-0.25 per word |
+| Book         | 20,000-60,000      | $0.25-2.00 per word |
