@@ -1,9 +1,5 @@
 ---
-title: Lauren Lakeshore Stories
+title: Lakeshore Romance
 date: 2022-02-02T11:00:32-06:00
 ---
-Lauren Lakeshore is an author of romance stories. Her unique style of writing depicts the endless ways there are to share love and create intimacy, following characters who often find themselves in risqué situations. Her collection of literary work is for mature readers interested in suspenseful and thought-provoking reading material. Each story is designed to stimulate positive energy, enhance creativity and promote human connection.
-
-To access exclusive [Lauren Lakeshore Stories](https://laurenlakeshore.com/), [become a member](https://laurenlakeshore.com/membership/).
-
-Subscribe to the email list to receive previews to exclusive literature.
+This is a blog of x-rated romance stories depicting the endless ways there are to share love and create intimacy, following characters who find themselves in risqué situations. Dedicated to mature readers interested in intellectual adult entertainment, each story is written with loving care by [Lauren Lakeshore](https://laurenlakeshore.com/about-the-author/). Romance sub-genres include sweet/steamy contemporary romance, erotic romance, paranormal romance and suspense romance. Beloved literary tropes to look out for include forbidden love, friends to lovers, forced proximity, love triangles and, of course, second chances with the one that got away. Each story is designed to stimulate positive energy, enhance creativity and promote human connection. All sexualities are represented within this ever-growing collection of short stories, even those with unusual sexual fetishes. Expect realistic, fictional storylines featuring the examination of trends in modern culture, philosophical explorations regarding the human condition and will of Nature, as well as esoteric knowledge on heady topics like social sciences, spirituality and quantum physics. Enjoy dark humor, diversity among characters, narratives, dialogues, introspections, advanced vocabulary, plot twists and surprise endings. Take away nuggets of wisdom and sex education to implement in real life. [Become a member](https://laurenlakeshore.com/membership/)to access exclusive [Lakeshore Romance](https://laurenlakeshore.com/) stories.
